@@ -19,5 +19,5 @@
 4. Cool for 30 min so you don't burn yourself.
 5. Squeeze liquid from fruit ends into syrup. 
 6. Discard fruit ends.
-7. Combine remaining ingredients and refrigerate for at least 24 hours.
+7. Combine syrup and remaining ingredients and refrigerate for at least 24 hours.
 8. Eat the wonderful, wine-soaked fruit as you drink the sangria.
