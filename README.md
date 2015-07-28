@@ -2,14 +2,14 @@
 
 ## Ingredients
 
-* 1 bottle red wine (cheap, spanish)
 * 1 lemon
 * 1 orange
 * 1 lime
-* 2 Tbsp brandy
-* 1/2 c sugar
 * 1/2 c water
+* 1/2 c sugar
+* 1 bottle red wine (cheap, Spanish)
 * 1 - 2 c carbonated water
+* 2 Tbsp brandy
 
 ## Instructions
 
