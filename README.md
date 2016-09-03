@@ -21,3 +21,14 @@
 6. Discard fruit ends.
 7. Combine syrup and remaining ingredients and refrigerate for at least 24 hours.
 8. Eat the wonderful, wine-soaked fruit as you drink the sangria.
+
+## Jello shots
+
+* 8 oz boiling water
+* 8 oz club soda
+* 13 oz red wine
+* 1 oz brandy
+* 4 packages of jello (cherry, orange, lemon, lime)
+* maraschino cherries
+* mandarin oranges
+* 
